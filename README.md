@@ -13,4 +13,4 @@ maikeruzyakuson
 oooooooooooooooooooooooooooooooo
 
 ## TA Check
-れびゅーおねがいします
+レビューおねがいします
